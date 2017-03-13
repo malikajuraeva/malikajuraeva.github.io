@@ -1,1 +1,1 @@
-# IUT girls                                                                                             Malika Juraeva
+# IUT girls                                                                                             (Malika Juraeva)
